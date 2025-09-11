@@ -1,21 +1,11 @@
-# whatsapp-group-links
-Find WhatsApp group links for study, jobs, memes, gaming &amp; more at Groupsop.com – free WhatsApp group directory.
+# 🚀 WhatsApp Group Links
 
-# 📱 Join Active WhatsApp Group Links – Groupsop  
+Welcome to the **WhatsApp Group Links Directory** by [Groupsop.com](https://groupsop.com).  
+Find, join, and share WhatsApp groups for **study, jobs, memes, movies, gaming, and more**.  
 
-Looking for **WhatsApp group links**? 🎉  
-Find study groups, job alerts, gaming squads, memes & more – all in one place.  
+## 🔥 Features
+- ✅ Join popular WhatsApp groups  
+- ✅ Share your WhatsApp group for free  
+- ✅ No spam, just real members  
 
-👉 Visit: [www.groupsop.com](https://www.groupsop.com)  
-
----
-
-## 🔍 Categories We Cover  
-- Study & Education WhatsApp Groups  
-- Job & Career WhatsApp Groups  
-- Memes & Fun WhatsApp Groups  
-- Gaming WhatsApp Groups  
-- Movies & Entertainment WhatsApp Groups  
-
-⭐ Share your group & grow fast: [Submit Now](https://www.groupsop.com)  
-
+👉 Visit: [https://groupsop.com](https://groupsop.com)  
